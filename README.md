@@ -8,7 +8,7 @@ Have hours of fun!!
 If you have noticed there're some bugs, contact below then let me know.  
 Asuka Chinen : e165734@ie.u-ryukyu.ac.jp  
 
-New to review?  
+If you're new to review,  
 1. Contact e-mail above.  
 2. Send your review about this fantastic game!  
 
